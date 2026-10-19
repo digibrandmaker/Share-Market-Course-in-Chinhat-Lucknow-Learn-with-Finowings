@@ -28,8 +28,6 @@ Understand stop-loss orders, position sizing, risk-reward ratios, and trading di
 
 Finowings offers stock market educational resources and courses covering topics such as technical analysis, fundamental analysis, and options trading. Learners can explore available programs and choose a suitable learning format according to their experience and goals.
 
-If you live in Chinhat, Lucknow, you can visit the official [Finowings website](https://www.finowings.com/) to check available courses, curriculum, fees, and class schedules before enrolling.
-
 ## Who Can Join This Course?
 
 A share market course may be suitable for:
